@@ -30,6 +30,9 @@
   <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/hg2s0k.gif" alt="kitty bobbing"> In my free time, I really like to listen to and make music or draw.
 </p>
 <p align="center">
+  .
+</p>
+<p align="center">
   <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/u1a3mv.gif" alt="left wing">
   It's super easy to strike a conversation with me over things I like! I have a strawpage linked so you know what to talk about ; -) 
   <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/aj0cqr.gif" alt="right wing">
