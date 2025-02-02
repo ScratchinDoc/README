@@ -1,8 +1,4 @@
-
-
-https://github.com/user-attachments/assets/601a0a44-9c9a-4eef-afe3-0ae3b0df5bf3
-
-# READ
+# READ ME!
 <p align="center">
   <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/3c6d812bd53d19b45202e5483380b97a.gif"/>
 </p>
