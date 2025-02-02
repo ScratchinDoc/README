@@ -7,7 +7,7 @@
   Hello, My name is Dave or Juno. I prefer you call me Dave.
   <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/aj0cqr.gif" alt="right wing">
 </p>
-<p>
+<p align="center">
   .
 </p>
 <p align="center">
