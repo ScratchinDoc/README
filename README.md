@@ -8,7 +8,7 @@
   <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/aj0cqr.gif" alt="right wing">
 </p>
 <p>
-  <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/r3nqkr.gif" alt="blue swirl"> I am 28 and am transmasc, we are not 28 bodily.
+  <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/plhu2u.gif" alt="exclamation marks"> I am 28 and am transmasc, we are not 28 bodily.
 </p>
 
 <p align="center">
