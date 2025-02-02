@@ -12,6 +12,7 @@
 </p>
 <p align="center">
    <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/plhu2u.gif" alt="exclamation marks"> When talking to new people, I am very antisocial. It's just how I am, my apologies.
+<p/>
 <p align="center">
   <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/ezgif.com-resize.gif"/>
 </p>
