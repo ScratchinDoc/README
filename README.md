@@ -11,7 +11,7 @@
   <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/plhu2u.gif" alt="exclamation marks"> I am 28 and am transmasc, we are not 28 bodily.
 </p>
 <p align="center">
-  <video src="https://github.com/user-attachments/assets/719e6dcc-fb07-4ced-8829-53aa7158933d" width="200" />
+  <video src="https://github.com/user-attachments/assets/4d221969-a5ac-4537-b4aa-21b10ac06cd4" width="200" />
 </p>
 <p align="center">
   <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/ezgif.com-resize.gif"/>
