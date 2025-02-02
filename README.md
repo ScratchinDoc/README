@@ -16,5 +16,5 @@
   <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/ezgif.com-resize.gif"/>
 </p>
 <p align="center">
-  <video src="https://github.com/user-attachments/assets/0acd898f-6d7b-4d95-a11b-f6f4eb75ca55" width="320" />
+  <video src="https://github.com/user-attachments/assets/0acd898f-6d7b-4d95-a11b-f6f4eb75ca55" width="500" />
 </p>
