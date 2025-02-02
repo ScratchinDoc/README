@@ -24,6 +24,9 @@
   <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/m172ob.png" alt="right ribbon">
 </p>
 <p align="center">
+  <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/hg2s0k.gif" alt="kitty bobbing"> If you like Bampunged (Ship), Davepunged (Ship), Candycorn (Ship), or Mukave (Ship), I'd appreciate it if you did not interact with me. Personal boundaries, that's all.
+</p>
+<p align="center">
   <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/hg2s0k.gif" alt="kitty bobbing"> I really like Yarnaby, Doey, Kissy Missy, Doctor (Poppy PLaytime), Slimyim, Salad Fingers, Snorlax, Maxwell (Scribblenauts), and music boxes.
 </p>
 <p align=center>
