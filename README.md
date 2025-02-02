@@ -21,7 +21,11 @@
   <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/m172ob.png" alt="right ribbon">
 </p>
 <p align="center">
-  <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/hg2s0k.gif" alt="kitty bobbing"> I really like Yarnaby, Doey, Kissy Missy, Slimyim, Salad Fingers, Snorlax, Maxwell (Scribblenauts), and music boxes.
+  <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/hg2s0k.gif" alt="kitty bobbing"> I really like Yarnaby, Doey, Kissy Missy, Doctor (Poppy PLaytime), Slimyim, Salad Fingers, Snorlax, Maxwell (Scribblenauts), and music boxes.
+</p>
+<p align=center>
+  <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/hg2s0k.gif" alt="kitty bobbing"> In my free time, I really like to listen to and make music or draw.
+</p>
 <p align="center">
   <img src="https://file.garden/ZYeKwZ1Byy9B5AzI/ezgif.com-resize.gif"/>
 </p>
